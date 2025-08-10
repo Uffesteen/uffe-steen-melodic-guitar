@@ -1,2 +1,9 @@
-# uffe-steen-melodic-guitar
-Links to my music and concerts
+## Indhold
+- Links til mine musikvideoer
+- Links til mine sociale profiler
+- Kontaktmuligheder
+
+## Teknologi
+- HTML og CSS
+- Hostet på GitHub Pages
+- 
