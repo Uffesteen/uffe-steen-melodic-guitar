@@ -6,7 +6,7 @@ Kære Alle
 ## Indhold
 Mine YouTube videoer (https://www.youtube.com/user/stratosdane)
 
-BAND CAMP: https://guitarist.uffe-steen.dk/shop/
+BAND CAMP: https://uffesteen.bandcamp.com/
 
 
 https://www.youtube.com/user/AlruneRod2811/search?query=uffe+steen
