@@ -28,8 +28,7 @@ Koncerter: (http://www.kultunaut.dk/perl/arrlist/type-nynaut?ArrKunstner=Uffe+St
 https://www.musikkons.dk/index.php?id=3709
 
 
-
-https://guitarist.uffe-steen.dk/donation
+Donate (https://www.paypal.com/donate?token=Dvqz_6gwOzJlU_B9--Z97Cj9cFrYWJYwx1cquaMCoFkVdccB4BgG6k_pSx82_GZDo5GH-wXkmW5vW-wm)
 
 
 - Kontaktmuligheder
