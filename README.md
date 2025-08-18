@@ -4,9 +4,9 @@ Kære Alle
 
 
 ## Indhold
-(https://www.youtube.com/user/stratosdane)
+Mine YouTube videoer (https://www.youtube.com/user/stratosdane)
 
-[- Links til mine sociale profiler](https://guitarist.uffe-steen.dk/shop/)
+BAND CAMP: https://guitarist.uffe-steen.dk/shop/
 
 
 https://www.youtube.com/user/AlruneRod2811/search?query=uffe+steen
