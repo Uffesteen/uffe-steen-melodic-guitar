@@ -1,3 +1,8 @@
+Kære Alle
+
+
+
+
 ## Indhold
 [- Links til mine musikvideoer](https://www.youtube.com/user/stratosdane)
 
