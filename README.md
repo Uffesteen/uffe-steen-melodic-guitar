@@ -4,8 +4,7 @@ Kære Alle
 
 
 ## Indhold
-mine musikvideoer](https://www.youtube.com/
-
+(https://www.youtube.com/user/stratosdane)
 
 [- Links til mine sociale profiler](https://guitarist.uffe-steen.dk/shop/)
 
