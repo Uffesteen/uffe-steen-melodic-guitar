@@ -9,21 +9,14 @@ The latest release is the CD “Doppler Effect” : Uffe Steen Trio and Vestbo T
 Uffe steen has also published 1 jazz guitar and 3 blues textbooks  and is a Docent at the Royal Academy of Music in Aarhus, Denmark
 Uffe Steen is recognized in both Denmark and abroad for concerts and CDs, with the most  respected danish jazz musicians, and has accompanied and played with internationally renowned artists such as Adam Nussbaum, Alex Riel, Bob Rockwell Joye Baron, Jeff Ballard,
 
-
-
-
-
 ## Indhold
-Mine YouTube videoer (https://www.youtube.com/user/stratosdane)
+YouTube videos (https://www.youtube.com/user/stratosdane)
 
 BAND CAMP: https://uffesteen.bandcamp.com/
 
-
 https://www.youtube.com/user/AlruneRod2811/search?query=uffe+steen
 
-
 Koncerter: (http://www.kultunaut.dk/perl/arrlist/type-nynaut?ArrKunstner=Uffe+Steen)
-
 
 https://www.musikkons.dk/index.php?id=3709
 
