@@ -29,8 +29,7 @@ https://www.musikkons.dk/index.php?id=3709
 
 https://www.facebook.com/MelodicGuitarist/
 
-
-https://www.paypal.com/donate?token=Dvqz_6gwOzJlU_B9--Z97Cj9cFrYWJYwx1cquaMCoFkVdccB4BgG6k_pSx82_GZDo5GH-wXkmW5vW-wm
+https://www.paypal.com/paypalme/uffesteen/
 
 
 
